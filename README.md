@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Spookyy7.
+- 👀 I’m interested in anime.
+- 🌱 I’m currently learning japanese.
+- 💞️ I love listening to music.
+- 📫 How to reach me? You can reach out to me on my snapchat: Zombiegirl0720.
